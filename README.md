@@ -2,7 +2,7 @@
 - 👀 I’m interested in Software engineering 👨‍💻
 - 🌱 I’m currently learning Mathematics and Computer Science
 - 💞️ I’m looking to collaborate on the field of software engineering
-- 📫 How to reach me Instagram @eyes_hart or @_nj.ue_
+- 📫 How to reach me Instagram @_tri.ppie or @_nj.ue_
 
 <!---
 hnm433/hnm433 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
