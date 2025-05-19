@@ -54,7 +54,7 @@
 
 ### 📫 Let’s Connect!  
 - **Email**: [henrynjue255@gmail.com](mailto:henrynjue255@gmail.com)  
-- **LinkedIn**: [Profile](https://www.linkedin.com/in/njue-muchiri-5a7532360?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app) *(add if available)*  
+- **LinkedIn**: [Profile](https://www.linkedin.com/in/njue-muchiri-5a7532360?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app)
 - **Instagram**: [@njue.unruly](https://instagram.com/njue.unruly)  
 - **Twitter/X**: [@njue_unruly](https://twitter.com/njue_unruly)  
 
